@@ -1,1 +1,3 @@
-##                ![Alt text](https://www.photofunky.net/output/image/0/c/d/a/0cdad7/photofunky.gif)
+##                
+   *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
+![Alt text](https://www.photofunky.net/output/image/0/c/d/a/0cdad7/photofunky.gif)
